@@ -5,7 +5,9 @@ Been building stuff since high school. Entrepreneur, self-taught engineer, and I
 ### What I'm up to
 
 **Director of Emerging Technology** @ [Winmill Software](https://winmill.com)  
+
 **Co-Founder / CTO** @ [Bizbe Inc](https://bizbe.com)
+
 **Founder** @ [Orchata Labs](https://orchata.ai)
 
 ### Formerly
